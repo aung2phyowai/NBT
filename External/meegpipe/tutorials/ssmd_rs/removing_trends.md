@@ -1,5 +1,0 @@
-Removing trends
-===
-
-
-
